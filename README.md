@@ -17,8 +17,6 @@
 
 - 📫 How to reach me **rajeime.m.roberts@gmail.com**
 
-- ⚡ Fun fact **"I'm a pacifist"**
-
 <p align="left">
 </p>
 
